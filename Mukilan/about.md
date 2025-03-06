@@ -1,1 +1,0 @@
-ragnarok, the day that can never be forgotten.
